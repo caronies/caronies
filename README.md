@@ -1,6 +1,6 @@
 Hi, I’m @caronies
-- I’m interested in playing chess/Valorant/BGMI/ do Coding
-- I’m currently learning Computer Science
+- I’m interested in playing chess/Valorant/BGMI/Coding
+- I’m currently pursuing degree from  Computer Science
 - I’m looking to collaborate on ...
 - 📫 How to reach me myoxalicshop@hotmail.com
 - ⚡ Fun fact: Waiting For My Success..
